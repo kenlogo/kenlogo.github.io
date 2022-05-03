@@ -9,7 +9,43 @@
 文本传输
 
 
+【3】https://elib.cc/
+书籍搜索
+
+
+【4】分享网站，为了节约吧友的网络时间
+https://www.wnflb99.com/forum.php?mod=viewthread&tid=107427&extra=page%3D1&mobile=2
+
+
+
+【5】http://m.doczj.com/doc/6c2664667-4.html
+某一级公路设计总说明
+
+
+
+【6】道路工程毕业设计说明书
+https://wk.baidu.com/view/9fa0341b32126edb6f1aff00bed5b9f3f90f7280
+
+
+
+
+【7】纬地一学就会
+https://www.yuque.com/ryzeyang-k2z5n/pncozy/frzutopkxbab
+
+
+【8】谁有夫妻日记的资源
+https://www.wnflb99.com/forum.php?mod=viewthread&tid=188781&extra=page%3D1&mobile=2
+
+
+
+【9】给上不去GitHub的发几个私藏的镜像站
+https://www.wnflb99.com/forum.php?mod=viewthread&tid=188692&extra=page%3D1&mobile=2
+
 2022年5月3日
+
+
+
+
 
 
 
