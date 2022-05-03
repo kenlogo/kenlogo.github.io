@@ -2,7 +2,14 @@
 
 ![](https://raw.githubusercontent.com/kenlogo/kenlogo.github.io/main/1.png)
 
+[1]https://riyugo.com/
+图片上传
 
+[2]https://typecho.in/a3fkj
+文本传输
+
+
+2022年5月3日
 
 
 
